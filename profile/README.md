@@ -4,5 +4,6 @@
 ---
 
 Here is Erika, a Chinese CS students, Recovering from his mental illness.  
+My PGP Key: BC8142A27A0E8DA7C1F6274735CE6B260F802111  
 Let's make friends! 
-[Blog](risnordev.org) / [Channel](https://t.me/hayabusaerikadesu)
+[Blog](risnordev.org)  /  [Channel](https://t.me/hayabusaerikadesu)
