@@ -3,6 +3,6 @@
 
 ---
 
-Here is Erika, a Chinese CS students, Recovering from his mental illness.
+Here is Erika, a Chinese CS students, Recovering from his mental illness.  
 Let's make friends! 
 [Blog](risnordev.org) / [Channel](https://t.me/hayabusaerikadesu)
